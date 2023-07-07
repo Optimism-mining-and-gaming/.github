@@ -1,0 +1,1 @@
+I'm lookingto start a project to build optimism mining and gaming i am trying for something like Rollercoin but diffrent with diffrent features and diffrent games for mining rewards i need help with this project come help me .github 
